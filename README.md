@@ -1,1 +1,0 @@
-# kazuyayoshidoe.github.io
